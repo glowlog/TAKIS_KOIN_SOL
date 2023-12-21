@@ -18,6 +18,14 @@ Takis holders dispense swag mere perpetual existance swag money.
 
 # COA
 
-Shit gets airdropped, LP is made, takis swag, takis memes, takis proliferates, takis infects the soul, takis engages the host, takis mode.
+Shit gets airdropped, LP is made, takis swag, takis memes, takis proliferates, takis meme, funty project resonates with aspects of the cultural zeitgeist that cannot be ignored, takis engages with the observer, takis mode, takis currency achieved.
 
 # Where we gon deploy that LP
+
+guac->create token + create LP
+
+# Meme pipeline
+
+- (real) generated video on $TAKIS coin conversion into real bag from local target or walmart
+- get the $TAKIS (tiktok dance trend)
+- $TAKIS youtube poop fiverr submission edit contest
